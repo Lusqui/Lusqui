@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Lusqui
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning Pyton
+- 📫 How to reach me rickylusquinos@gmail.com
